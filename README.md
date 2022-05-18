@@ -1,0 +1,5 @@
+- 👋 Mis amigues me llaman Rouse
+- 👀 Estoy interesada en el mundo Front-End
+- 🌱 Actualmente estoy aprendiendo a desarrollar cosas guays dentro de este mundo.
+- 💞️ Estoy buscando y trabajando en encontrar mi sitio como programadora
+- 📫 Si quieres conocerme escribeme en rociogase@gmail.com
